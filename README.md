@@ -7,6 +7,7 @@
 ## RAFIS x WHITECAT
 # ![alt-текст](https://media.discordapp.net/attachments/635125808305799188/721828115013173278/screenshot033.jpg?width=1204&height=677)
 [Download](https://drive.google.com/file/d/1qEj31iYOIf8GDWNEkKU8WOEmb5qMpoFl/view?usp=sharing "Download")
+[Download *NO SPINNER*](https://drive.google.com/file/d/1AXdg7UemW6draFho0xA0F_jMfnzjvnmy/view?usp=sharing "Download")
 ## BLUE WHITECAT
 # ![alt-текст](https://media.discordapp.net/attachments/635125808305799188/721819239241089034/screenshot032.jpg?width=1204&height=677)
 [Download](https://drive.google.com/file/d/1gUmnOP7V4ZbxCM_II8oDAN3JIhBof9vq/view?usp=sharing "Download")
