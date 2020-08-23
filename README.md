@@ -1,3 +1,9 @@
+## PonyTail
+# ![alt-текст](https://media.discordapp.net/attachments/635125808305799188/747081686361309317/screenshot207.jpg?width=1204&height=677)
+#[Download](https://drive.google.com/file/d/1SEjwA69sOxPfo1-kurmOpiEiD19-unxA/view?usp=sharing "Download")
+## OwOEver (reOwoTuna Interface, gameplay by me)
+# ![alt-текст](https://media.discordapp.net/attachments/635125808305799188/747040694035677224/screenshot201.jpg?width=1204&height=677)
+#[Download](https://drive.google.com/file/d/1P9APBSfL4O1xRGrYdETckGw4xxC1NpKX/view "Download")
 ## IDKE x WHITECAT
 # ![alt-текст](https://media.discordapp.net/attachments/635125808305799188/721828723766198332/screenshot034.jpg?width=1204&height=677)
 #[Download](https://drive.google.com/file/d/1yCinSs09KdHLHrEdSLPcpVlUu6iWfszn/view?usp=sharing "Download")
