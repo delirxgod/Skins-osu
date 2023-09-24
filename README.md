@@ -1,5 +1,5 @@
 ## tranquil sublimity
-# ![alt-текст]([https://camo.githubusercontent.com/32a442dd89221e66f2cde86a5f339361c9b9a2a605f906b206b5d6113bd4d402/68747470733a2f2f6f73752e7070792e73682f73732f31353539343334382f65386263](https://skimg.osuck.net/e089125d98686413104bc4105ab7813f.webp))
+# ![alt-текст]([https://skimg.osuck.net/e089125d98686413104bc4105ab7813f.webp])
 #[Download](https://skins.osuck.net/skins/584?v=0)
 ## Vaxei (《CK》 Bacon boi 1.0 skin )
 # ![alt-текст](https://camo.githubusercontent.com/32a442dd89221e66f2cde86a5f339361c9b9a2a605f906b206b5d6113bd4d402/68747470733a2f2f6f73752e7070792e73682f73732f31353539343334382f65386263)
